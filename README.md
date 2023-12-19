@@ -1,1 +1,1 @@
-fuck (YOU).
+Read the website for information
